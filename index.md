@@ -1,4 +1,4 @@
-## Portfolio
+## Sam MacIntyre - Data Scientist
 
 ---
 
